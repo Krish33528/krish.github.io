@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am persuing btech in ai ml at atlas skilktech university 
+I am pursuing btech in ai ml at atlas skilktech university 
 
 
 ## 🌐 Socials:
